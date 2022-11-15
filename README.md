@@ -130,7 +130,8 @@ SIPO:
 PISO:
 ![201103017-02a474ad-cc58-4293-907b-7c923b12da61](https://user-images.githubusercontent.com/94828604/201915582-7d21abe4-7cbf-41cd-b858-14cf83873527.jpg)
 PIPO:
-[201103045-f016f980-09ea-4c24-8889-75db3bf5b701](https://user-images.githubusercontent.com/94828604/201915669-2940b676-3c15-4a5f-8b77-a27e3cb86974.jpg)
+![201103045-f016f980-09ea-4c24-8889-75db3bf5b701](https://user-images.githubusercontent.com/94828604/201916184-385bf78a-4f31-413e-8f76-7c0c874d49c7.jpg)
+
 
 
 RESULTS:
